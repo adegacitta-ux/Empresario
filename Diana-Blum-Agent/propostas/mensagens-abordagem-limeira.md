@@ -1,6 +1,6 @@
 # Mensagens de Abordagem — Limeira e Região
 
-Modelos de mensagem para primeiro contato (Instagram DM / WhatsApp / e-mail), a ser enviado por Ronan Città em nome de Diana Blum. Cada mensagem deve ser acompanhada de press-kit (fotos + vídeo de apresentação) e do link do Instagram da artista.
+Modelos de mensagem para primeiro contato (Instagram DM / WhatsApp / e-mail), a ser enviado por Ronan Città em nome de Diana Blum. Cada mensagem deve incluir o link do EPK (press-kit): **https://adegacitta-ux.github.io/Diana-Blum/** — reúne bio, fotos, repertório e canais oficiais, dispensando anexos separados.
 
 ---
 
