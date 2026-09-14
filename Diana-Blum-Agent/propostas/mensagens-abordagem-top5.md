@@ -1,6 +1,8 @@
 # Mensagens de Abordagem — Top 5 Locais (São Paulo)
 
-Modelos de mensagem para primeiro contato (Instagram DM / WhatsApp / e-mail), a ser enviado por Ronan Città em nome de Diana Blum. Cada mensagem deve ser acompanhada de press-kit (fotos + vídeo de apresentação) e do link do Instagram da artista. Ajustar nome do responsável comercial do local quando identificado.
+Modelos de mensagem para primeiro contato (Instagram DM / WhatsApp / e-mail), a ser enviado por Ronan Città em nome de Diana Blum. Cada mensagem deve incluir o link do EPK (press-kit): **https://adegacitta-ux.github.io/Diana-Blum/** — reúne bio, fotos, repertório e canais oficiais, dispensando anexos separados. Ajustar nome do responsável comercial do local quando identificado.
+
+**Status de envio (e-mail, 14/09/2026):** Rubi Wine Bar, Bardega, Jacaré Grill e Tatu Bola Bar já receberam a proposta + follow-up com o link do EPK. Divine Wine Bar parece ter fechado (excluído da prospecção). Doc não tem e-mail confirmado — endereço coincide com o do Bardega, possivelmente o mesmo local. Il Piano e Piano Bar Transamérica ainda sem e-mail direto confirmado (só telefone).
 
 ---
 
